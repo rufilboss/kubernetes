@@ -1,3 +1,3 @@
 # Kubernetes
 
-Relearning Kubernetes from 0
+Relearning Kubernetes🚀🚀🚀
